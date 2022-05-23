@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Aizikov for frends Valia
+- 👋 Hello world, I’m Aizikov for frends Valia
 - 👀 I’m interested in anime, manga and programming
 - 🌱 I’m currently learning in 9 class
 - 📫 How to reach me @HatsuneMaku (My telegram)
